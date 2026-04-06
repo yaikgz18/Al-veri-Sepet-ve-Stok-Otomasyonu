@@ -1,0 +1,1 @@
+# Al-veri-Sepet-ve-Stok-Otomasyonu
